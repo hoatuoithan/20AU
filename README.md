@@ -1,1 +1,20 @@
-# 20AU
+emeryhernandez2611au@icloud.com
+maracarter2611au@icloud.com
+lennonmarin2611au@icloud.com
+aldomatthews2611au@icloud.com
+masonfuller2611au@icloud.com
+maverickkim2611au@icloud.com
+kaydencameron2611au@icloud.com
+holdenodom2611au@icloud.com
+krewdougher2611au@icloud.com
+jadenharrell2611au@icloud.com
+emmittpittman2611au@icloud.com
+kylodawson2611au@icloud.com
+KingCarson2611AU@icloud.com
+calvintorres2611au@icloud.com
+edwardmiles2611au@icloud.com
+AdanRobinson2611AU@icloud.com
+brixtontrevino2611au@icloud.com
+dukeallison2611au@icloud.com
+caidenbeadley2611au@icloud.com
+JoziahFranco2611AU@icloud.com
