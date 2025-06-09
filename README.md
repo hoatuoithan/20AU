@@ -20,10 +20,7 @@ JoziahFranco2611AU@icloud.com
 huntertyler44th4@icloud.com
 korimercado134th2@icloud.com
 rowen.lam@icloud.com
-alayahblack42ph4@icloud.com
-yaragaines24ph4@icloud.com
 aylavincent91@icloud.com
-kodypitman124kh4@icloud.com
 gabriellahowell711ph@icloud.com
 margaritagarrido90@icloud.com
 lorenarcher546@icloud.com
@@ -34,7 +31,6 @@ tinsleymeye143.at389@icloud.com
 lyricdalton133.de617@icloud.com
 emilkramer127@icloud.com
 reynjacobson214@icloud.com
-lylahleblanc33pt2@icloud.com
 jessimarin15kh2.633@icloud.com
 milanimoon193.sk3610@icloud.com
 marcusogg3326@icloud.com
